@@ -1,3 +1,1 @@
-vadwf
-ngintiplu
-bintit
+kampret
